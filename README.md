@@ -1,4 +1,2 @@
 ### in a RAM-1500 truck
- ![](https://cdn.discordapp.com/attachments/831731768808964106/1159740915934576710/blinkiesCafe-Xj.gif?ex=65321fe5&is=651faae5&hm=36d45db6ea4718172820e31bd7fbf99da9aa22a711e50dd5b385aee4497fa3d3&)
-
-![](https://cdn.discordapp.com/attachments/831731768808964106/1159755235464581140/57163a13_original.png?ex=65322d3b&is=651fb83b&hm=ad1cfaf8366f1acce598ce7b255dbc56ac84ddbd097d9517cdd4a47a16c207ca&) ![](https://raining-starss.neocities.org/boot%20(4).gif)
+![](https://cdn.discordapp.com/attachments/831731768808964106/1159772303912075314/blinkiesCafe-Yi.gif?ex=65323d20&is=651fc820&hm=d75a991018046ecd290ffb19285f6989d97c855ce4e18aa2277e5f7493506f3f&) ![](https://cdn.discordapp.com/attachments/831731768808964106/1159772758679506985/blinkiesCafe-G8.gif?ex=65323d8d&is=651fc88d&hm=d2c04baf492219425e3bd98fa39c7f75d331135a7c8968eb2f0ff54b88760719&)
