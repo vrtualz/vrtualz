@@ -5,5 +5,5 @@
 
 ![](https://sparklelobster.neocities.org/50x50c.gif) 
 
-![](https://64.media.tumblr.com/1f233f96335f9eb3c66c9bd7aedf131b/af59bfe2eedade66-97/s100x200/1b8581991596dc647ad1346136593509129aeb2c.gifv) ![](https://64.media.tumblr.com/08df49d867dd5aa96478d1c2e26b71df/ae68e38e391d6dae-19/s100x200/54e8477f4eccb14c72417139c93d210a2a1a79c3.gifv) ![](https://y2k.neocities.org/buttons/linuxnow.jpg)
+![](https://64.media.tumblr.com/1f233f96335f9eb3c66c9bd7aedf131b/af59bfe2eedade66-97/s100x200/1b8581991596dc647ad1346136593509129aeb2c.gifv) ![](https://64.media.tumblr.com/08df49d867dd5aa96478d1c2e26b71df/ae68e38e391d6dae-19/s100x200/54e8477f4eccb14c72417139c93d210a2a1a79c3.gifv) ![](https://y2k.neocities.org/buttons/linuxnow.jpg) ![](https://supplies.ju.mp/assets/images/gallery14/f7407814.gif?v=7a21d1f7)
 
