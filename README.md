@@ -1,5 +1,5 @@
 ### in a RAM-1500 truck
- ![](https://cdn.discordapp.com/attachments/831731768808964106/1159740915934576710/blinkiesCafe-Xj.gif?ex=65321fe5&is=651faae5&hm=36d45db6ea4718172820e31bd7fbf99da9aa22a711e50dd5b385aee4497fa3d3&) 
+ ![](https://cdn.discordapp.com/attachments/831731768808964106/1159740915934576710/blinkiesCafe-Xj.gif?ex=65321fe5&is=651faae5&hm=36d45db6ea4718172820e31bd7fbf99da9aa22a711e50dd5b385aee4497fa3d3&) ![](https://cdn.discordapp.com/attachments/831731768808964106/1159787988839043072/blinkiesCafe-iM.gif?ex=65324bbc&is=651fd6bc&hm=1ab4bea4f8caaa84d9dfe218ece534a4574d3074059b7e92bc661489ccb2bcf2&) ![](https://cdn.discordapp.com/attachments/831731768808964106/1159788477781659648/blinkiesCafe-zH.gif?ex=65324c30&is=651fd730&hm=a2222a4a3e4bda0bdd2ae9923389c571e459888cbcf4116d4673e6942682a841&)
 
 ![](https://cdn.discordapp.com/attachments/831731768808964106/1159755235464581140/57163a13_original.png?ex=65322d3b&is=651fb83b&hm=ad1cfaf8366f1acce598ce7b255dbc56ac84ddbd097d9517cdd4a47a16c207ca&) ![](https://raining-starss.neocities.org/boot%20(4).gif) ![](https://external-media.spacehey.net/media/svoybJBTuRvKwrouG1fID8hIM2s0RwsAaUR83epc7dAQ=/https://64.media.tumblr.com/ad29e2e3e0519ca1cc358e7fe8fda3a8/tumblr_prx0uwGciN1xzybrpo1_100.png)
 
