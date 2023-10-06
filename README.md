@@ -3,7 +3,7 @@
 
 ![](https://cdn.discordapp.com/attachments/831731768808964106/1159755235464581140/57163a13_original.png?ex=65322d3b&is=651fb83b&hm=ad1cfaf8366f1acce598ce7b255dbc56ac84ddbd097d9517cdd4a47a16c207ca&) ![](https://raining-starss.neocities.org/boot%20(4).gif) ![](https://external-media.spacehey.net/media/svoybJBTuRvKwrouG1fID8hIM2s0RwsAaUR83epc7dAQ=/https://64.media.tumblr.com/ad29e2e3e0519ca1cc358e7fe8fda3a8/tumblr_prx0uwGciN1xzybrpo1_100.png)
 
-![](https://sparklelobster.neocities.org/50x50c.gif)
+![](https://sparklelobster.neocities.org/50x50c.gif) 
 
 ![](https://64.media.tumblr.com/1f233f96335f9eb3c66c9bd7aedf131b/af59bfe2eedade66-97/s100x200/1b8581991596dc647ad1346136593509129aeb2c.gifv)
 
