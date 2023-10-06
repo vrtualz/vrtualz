@@ -5,3 +5,4 @@
 
 ![](https://64.media.tumblr.com/1f233f96335f9eb3c66c9bd7aedf131b/af59bfe2eedade66-97/s100x200/1b8581991596dc647ad1346136593509129aeb2c.gifv) ![](https://64.media.tumblr.com/08df49d867dd5aa96478d1c2e26b71df/ae68e38e391d6dae-19/s100x200/54e8477f4eccb14c72417139c93d210a2a1a79c3.gifv) ![](https://y2k.neocities.org/buttons/linuxnow.jpg) ![](https://supplies.ju.mp/assets/images/gallery14/f7407814.gif?v=7a21d1f7) ![](https://supplies.ju.mp/assets/images/gallery29/4eafa293.gif?v=7a21d1f7) ![](https://creep.crd.co/assets/images/gallery05/167d1a3a.gif?v=9fb44b0b) ![](https://creep.crd.co/assets/images/gallery05/4889fd8c.gif?v=9fb44b0b) ![](https://cdn.discordapp.com/attachments/831731768808964106/1159889841329283072/button_1.gif?ex=6532aa97&is=65203597&hm=9c78505cc67f30b3c7f60eb60325a8e243e59fc67060dacbdc9fb958c16ae53d&)
 
+![](https://external-media.spacehey.net/media/s7yNQlnW0eO_c64mCHtbCoRhOGnHR1VFipBntQ7d_niY=/https://sord.neocities.org/stamps/music3.png)
