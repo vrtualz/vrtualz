@@ -1,3 +1,4 @@
+![](https://pbs.twimg.com/media/FXfogL9XgAEDV2s?format=jpg&name=large)
 
 ![](https://cdn.discordapp.com/attachments/770844443015643173/1212286221091479602/5c77957254fd813c8e3d61663745c09a.png?ex=65f14886&is=65ded386&hm=485a09b968b5499f429ede67474ea1dfacdc1a746c53a152e3a67831c0bfd435&)
 
