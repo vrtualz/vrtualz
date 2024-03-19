@@ -1,6 +1,6 @@
 ![](https://pbs.twimg.com/media/FXfogL9XgAEDV2s?format=jpg&name=large)
 
-![](https://cdn.discordapp.com/attachments/770844443015643173/1212286221091479602/5c77957254fd813c8e3d61663745c09a.png?ex=65f14886&is=65ded386&hm=485a09b968b5499f429ede67474ea1dfacdc1a746c53a152e3a67831c0bfd435&)
+![](https://media.discordapp.net/attachments/770844443015643173/1209407797167521832/getyourhandsOUTmypantsnigga.jpg?ex=660bb9c8&is=65f944c8&hm=a507f23c3c30d37034969ab9be8af134f41f709f0335b6cde36ec0dd5d96e473&=&format=webp&width=340&height=421)
 
 ![](https://media.discordapp.net/attachments/770844443015643173/1209407797167521832/getyourhandsOUTmypantsnigga.jpg?ex=65e6cfc8&is=65d45ac8&hm=7519af23ce87abe12a119e95f80d0b826613c1e45772345adac70692aabaee3d&=&format=webp&width=340&height=421)
 
