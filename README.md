@@ -1,4 +1,5 @@
-![](https://i.pinimg.com/564x/08/23/26/082326f52e65fb0e1962b821d917e0a5.jpg)
+![](https://i.imgur.com/PFfFaxK.png)
+(6'3. black curly hair with soft eyes. male. love and respects women. great fashion sense. hmu or whatever. i dont care tm.)
 
 ![](https://media.discordapp.net/attachments/770844443015643173/1209407797167521832/getyourhandsOUTmypantsnigga.jpg?ex=660bb9c8&is=65f944c8&hm=a507f23c3c30d37034969ab9be8af134f41f709f0335b6cde36ec0dd5d96e473&=&format=webp&width=340&height=421)
 
