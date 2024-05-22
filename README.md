@@ -1,6 +1,5 @@
 ![](https://i.imgur.com/PFfFaxK.png)
-(6'3. black curly hair with soft eyes. male. love and respects women. great fashion sense. hmu or whatever. i dont care tm.)
-
+ (im a 6'3 tall cis man with luxurious black curly hair that shimmers in the sun. my eyes are soft and expressive, reflecting my COMPASSIONATE nature. I'm deeply committed to treating women with the utmost respect and gratitude, I mean, they ARE the greatest gift in this world. nobody in the world could bear the pain and hardships like they do.)
 ![](https://media.discordapp.net/attachments/770844443015643173/1209407797167521832/getyourhandsOUTmypantsnigga.jpg?ex=660bb9c8&is=65f944c8&hm=a507f23c3c30d37034969ab9be8af134f41f709f0335b6cde36ec0dd5d96e473&=&format=webp&width=340&height=421)
 
 ![](https://media.discordapp.net/attachments/770844443015643173/1209407797167521832/getyourhandsOUTmypantsnigga.jpg?ex=65e6cfc8&is=65d45ac8&hm=7519af23ce87abe12a119e95f80d0b826613c1e45772345adac70692aabaee3d&=&format=webp&width=340&height=421)
